@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @akadiss26
 - 👀 I’m interested in ...data analysis, public health, data management, 
-- 🌱 I’m currently learning ...data analysis and UX/UI 
+- 🌱 I’m currently learning ...data analysis, digital marketing and UX/UI 
 - 💞️ I’m looking to collaborate on ...business analysis 
 - 📫 How to reach me ...Olarinosse@gmail.com, +2348102017844 
 
